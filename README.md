@@ -1,0 +1,1 @@
+These are collections of previous projects by students of yandex practicum
